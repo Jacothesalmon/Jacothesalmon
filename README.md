@@ -10,6 +10,7 @@
 - ⚡ Fun fact **Im still pretty bad at coding. Im still learning!**
 
 <h3 align="left">Connect with me:</h3>
+- Discord: Jaco__exe#3646
 <p align="left">
 </p>
 
